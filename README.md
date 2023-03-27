@@ -1,16 +1,21 @@
-### Hi there 👋
+### fallenangelofnigh
+## quem sou eu?
+eu sou apenas uma força de vontade de uma pessoa que decidiu investir suas habilidades na area da tecnologia para lutar por causas realmente justas
 
-<!--
-**fallenangelofnigh/fallenangelofnigh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## quem são meus alvos?
+politicos corruptos,
+terroristas,
+criminosos,
+e principalmente PEDÓFILOS
 
-Here are some ideas to get you started:
+## quem eu defendo?
+Cidadãos de bem
+o direito de ir e vir
+o direito de fala
+o direito de expressar ideias
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+## posso me unir a voce?
+claro, porem não teremos contato algum, apenas os mesmos ideais
+
+## We are Legion. We do not forgive. We do not forget. Expect Us.
